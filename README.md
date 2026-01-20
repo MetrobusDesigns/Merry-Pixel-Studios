@@ -1,2 +1,2 @@
-# Merry-Pixel-Studios
-Merry-Pixel Studios
+# Merrypixel-Studios
+Merrypixel Studios
